@@ -1,5 +1,10 @@
 # The Dragonfly Charm
 
+#Important!!!
+
+The money from the sale of this will help accelerate my studies and help buy a new
+PC for my software career!!!
+
 ## Can You Catch The Magic?
 
 > *"One day the dragonflies appear sudden as the sun. Speed and softness, they lash sky to air in silent seams"*<br/>
